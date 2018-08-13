@@ -1,4 +1,4 @@
 # hello-world
-Hello ugly Humans
+Hello Humans
 
-I went to China to buy some tomatos but it so hard because they dont have red ones.
+I went to the moon just to take a shower and get back soon because I had to go to work early this morning.
